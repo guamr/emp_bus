@@ -20,4 +20,5 @@ Confira o funcionamento no vídeo abaixo:
 
 ---  
 💬 **Discord:** gusta__
+
 🔗 **GitHub:** [gusta__](https://github.com/guamr)  
